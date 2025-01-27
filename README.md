@@ -1,7 +1,5 @@
 👋 Hi, this is the official GitHub account for Johnson Princess! 
 
-🌟 A confident, fun-loving lady with a passion for helping others succeed.
-
 🌟 Empowering Creators | Transforming Ideas | Exploring Data
 
 💼 As a Virtual Assistant and IT Specialist, I help entrepreneurs and content creators bring their visions to life through seamless support and innovative solutions. From managing workflows to delivering creative ideas, I’m here to make things happen.
@@ -14,7 +12,6 @@ As a confident, God-loving woman, I believe in creating value, tell meaningful s
 
 
 📫 Connect with me:  
-
 🌐 YouTube: [Johnson Princess]
 
 📷 Instagram: @_Onyi.nyechi 
